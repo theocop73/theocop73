@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **theocolombel@gmail.com , 06 29 05 23 37**
 
-- 📄 Know about my experiences [I work for Myrole since 2020](I work for Myrole since 2020)
+- 📄 Know about my experiences [I work for Myrole since 2020]
 
 
 <p align="left">
