@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [I work for Myrole since 2020](I work for Myrole since 2020)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
