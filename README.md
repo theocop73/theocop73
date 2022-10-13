@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **php, symfony**
 
-- 📫 How to reach me **theocolombel@gmail.com , 06 29 05 23 37**
+- 📫 How to reach me **theocolombel@gmail.com , **
 
 - 📄 Know about my experiences [I work for Myrole since 2020]
 
